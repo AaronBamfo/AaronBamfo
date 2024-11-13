@@ -1,5 +1,5 @@
 
-# 👋 Hi, I'm Aaron!
+# 👋 About Me
 
 🌍 **Data Analyst from :gb: & :ghana:**  
 🎓 **1st Class MSci in Biology**  
